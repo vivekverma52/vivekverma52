@@ -1,4 +1,4 @@
-
+Here are some ideas to get you started: - 🔭 I’m currently working on StartUp AI Based - 🌱 I’m currently looking for New Job - 👯 I’m looking to collaborate on LinkedIn - 📫 How to reach me: LinkedIn - ⚡ Fun fact: ...
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/vivek-verma-916796204/) 
 
